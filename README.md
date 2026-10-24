@@ -2,7 +2,7 @@
 
 Site público: https://tokretokfloripa-svg.github.io/zayderon./
 
-Reformas e manutenção em Florianópolis. WhatsApp: https://wa.me/5548984293934
+Reformas e manutenção na Grande Florianópolis. Atendimento no endereço do cliente, mediante consulta e agendamento. A base em Florianópolis é ponto de saída para os serviços, sem atendimento presencial ao público. WhatsApp: https://wa.me/5548984293934
 
 CNPJ: 69.184.981/0001-70.
 
